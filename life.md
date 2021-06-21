@@ -1,4 +1,4 @@
-@Syahravi's life
+@Rizki's life
 ===============
 
 - 02/2001 Syahravi is exist EXACTLY in Jepara, Indonesian
